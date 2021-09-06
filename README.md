@@ -1,1 +1,1 @@
-https://justpr0ger.github.io/Myportfolio/
+https://justpr0ger.github.io/rsschool-cv/cv
