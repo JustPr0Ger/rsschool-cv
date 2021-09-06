@@ -1,1 +1,0 @@
-https://justpr0ger.github.io/rsschool-cv/cv
